@@ -7,5 +7,5 @@ ACTION is the word.
 
 CONSTRAINTS are on your side!
 
-Writing your ideas might be the very step to make them come true.
+Writing your ideas might be the very first step to make them come true.
 
